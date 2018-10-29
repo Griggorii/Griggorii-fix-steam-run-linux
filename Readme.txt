@@ -1,5 +1,7 @@
-                                                             Устаранение неисправности запуска steam    
-                                                                                 Steam fix run                                  
+                                           Download fix https://yadi.sk/d/cE9swpEeNiREDA  
+                                             
+                                             Устаранение неисправности запуска steam    
+                                                           Steam fix run                                  
 
 
                                                                                    1
